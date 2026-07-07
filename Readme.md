@@ -1,1 +1,1 @@
-# social media platform dedicated for fashion
+# social media platform dedicated for fashion.
